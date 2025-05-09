@@ -1,6 +1,4 @@
-![e22f1485bb68385d42f060d3aea594c9](https://github.com/user-attachments/assets/f16093a7-731d-42a8-bce4-3355af0bbc4c)
-
-
+![alt text](e22f1485bb68385d42f060d3aea594c9.jpg)
 
 ⋆⭒˚.⋆ 🌌 ⋆⭒˚.⋆
 - ✮👋 Hi, I’m @vivistar-here
@@ -9,4 +7,4 @@
 - ⋆🎥 I’m looking to collaborate on culture, art and movements
 - ☕ How to reach me access @vivistar_art
 - ༉‧🍰 Pronouns: she/her/them
-- ༘⋆⭐ Fun fact: i love stars and cartoons
+- ༘⋆⭐ Fun fact: i love stars and cartoons!
