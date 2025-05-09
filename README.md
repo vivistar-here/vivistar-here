@@ -1,4 +1,5 @@
-![My Logo](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.pngegg.com%2Fen%2Fsearch%3Fq%3Dstudio%2BGhibli&psig=AOvVaw3DF-wyBKtNo-I6ZvkCSnKT&ust=1746897807703000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCMDFt9Dzlo0DFQAAAAAdAAAAABAE)
+![banner-header-space-f10a3e-1024](https://github.com/user-attachments/assets/8d7e60d7-50a5-4b5d-b1c2-a53d7c2e9bf6)
+
 
 ⋆⭒˚.⋆ 🌌 ⋆⭒˚.⋆
 - ✮👋 Hi, I’m @vivistar-here
